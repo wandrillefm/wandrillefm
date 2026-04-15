@@ -1,5 +1,5 @@
 # About Me:
-vibe coding and ai learining<br>curiosity is my seek
+machine learning (learning from ai)<br>curiosity drives me
 
 
 ## Socials:
