@@ -1,5 +1,5 @@
 ## About Me :
-machine learning (learning from ai)<br>curiosity drives me
+learning from ai and then teaching ai<br>curiosity drives me (all the way uppp)
 
 
 ## Socials :
